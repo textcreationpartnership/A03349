@@ -35,9 +35,11 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A sermon preached at Paules Crosse the 9. of Februarie being the first Sunday in the Parleament, Ann
+August.SChismaticos non fides diversa facit: sed communionis  dirupta societas. Schismatikes are suc
 #####Body#####
-A sermon preached at Paules Crosse the 9. of Februarie being the first Sunday in the Parleament, Ann
+
+1. Deerly beloved, beleeve not every spirit, but trie the spirits whether they be of God: For manie false prophets are gone out into the world. 1. IOH. 4. 1.
+
 **Types of content**
 
   * There are 2 **verse** lines!
